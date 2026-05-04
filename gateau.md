@@ -12,5 +12,5 @@
 
 
 
-Mélanger et cuire au four.
+Mélanger le tout et cuire au four.
 
